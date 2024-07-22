@@ -1,1 +1,1 @@
-# comic-ayuditas.github.io
+# comic-soporte.billingoutnodes.xyz
